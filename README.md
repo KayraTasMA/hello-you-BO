@@ -1,1 +1,1 @@
-# hello-you-BO
+Hello You Dit is mijn eerste beroepsopdrachtt op het Mediacollege Amsterdam. De opdracht is ok
