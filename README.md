@@ -1,1 +1,1 @@
-Hello You Dit is mijn eerste beroepsopdrachtt op het Mediacollege Amsterdam. De opdracht is ok
+Hello You Dit is mijn eerste beroepsopdracht op het Mediacollege Amsterdam. De opdracht is ok
